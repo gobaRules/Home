@@ -1,2 +1,2 @@
 # Home
-Place for random ideas, trying out thing, failing and being happy. Home.
+Place for random ideas, trying out things, failing, figuring it out and being happy. Home.
